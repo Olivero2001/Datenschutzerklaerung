@@ -12,4 +12,5 @@ E-Mail: info@projektrot.de
 
 Für alle Fragen zum Thema Datenschutz in Zusammenhang mit der Nutzung unserer App können Sie sich jederzeit an unseren Datenschutzbeauftragten wenden. Dieser ist unter obiger postalischen Adresse sowie unter der angegeben E-Mail-Adresse erreichbar.
 
+
 Datenschutzerklärung erstellt am: 24. Februar 2021
