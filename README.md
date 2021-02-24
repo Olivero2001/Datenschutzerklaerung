@@ -8,7 +8,7 @@ Oliver Oeste
 Hallenserstrasse 8
 59457 Werl
 
-E-Mail: info@projetrot.de
+E-Mail: info@projektrot.de
 
 Für alle Fragen zum Thema Datenschutz in Zusammenhang mit der Nutzung unserer App können Sie sich jederzeit an unseren Datenschutzbeauftragten wenden. Dieser ist unter obiger postalischen Adresse sowie unter der angegeben E-Mail-Adresse erreichbar.
 
